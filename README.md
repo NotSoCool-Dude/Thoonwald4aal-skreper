@@ -1,2 +1,1 @@
-# toonworld4all-scraper
-https://toonworld4all.me
+# NOTHING TO GET HER FOLKS
